@@ -1,3 +1,3 @@
 # WeekOneSK
 Hello World!
-My name is Shinn 
+My name is Shinn bro 
